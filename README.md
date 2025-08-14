@@ -1,5 +1,5 @@
 # video explanation 
-https://drive.google.com/drive/folders/1iuWzWnL8ic4i6K-rGUhy2wDidd8RPi1q?usp=sharing
+
 
 # NBOS - Skill Exchange Platform
 
